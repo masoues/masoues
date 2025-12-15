@@ -1,5 +1,5 @@
 <div align="center">
-![honk]()
+
 ![mreow](https://komarev.com/ghpvc/?username=masoues&color=466703&plastic&label=stalkerz+and+mentally+ills)
 
 $\text{\color{#466703}{𝐞𝐫𝐫 𝐢 𝐝𝐨𝐧𝐭 𝐰𝐚𝐧𝐧𝐚 𝐩𝐮𝐭 𝐬𝐦 𝐬𝐭𝐮𝐟𝐟 𝐡𝐞𝐫𝐞 𝐡𝐞𝐡𝐞 , 𝐛𝐮𝐭 𝐢 𝐫𝐞𝐥𝐥𝐲 𝐥𝐞𝐢𝐤 𝐫𝐚𝐳𝐳𝐥𝐞 𝐝𝐚𝐳𝐳𝐥𝐞 𝐜𝐮𝐳 𝐭𝐡𝐞𝐲𝐫𝐞 𝐦𝐲 𝐟𝐜 :𝟑}}$
